@@ -1,4 +1,6 @@
-![image](https://github.com/user-attachments/assets/ef63a70a-82f3-4a1c-a18e-ddcdc9439849)
+![image](https://github.com/user-attachments/assets/653ef98a-15e0-4617-8e05-6c50c7422a6c)
+
+
 
 ╭╭─┈  ⊹  ┈─┈      ┈─┈  ⊹  ┈─╮
 
@@ -6,32 +8,35 @@
 
 ╰︎╰︎─┈  ⊹  ┈─┈       ┈─┈  ⊹  ┈─╯
 
-well, hello!!! call me as Matis(р. Матис), or Sunbeam(р. Лучик). you can come up with nicknames for me yourself! I also wouldn't mind if you called me by my real name (but preferably not in large groups).
+well, hello!!! call me as Matis(р. Матис), or Sunbeam(р. Лучик). 
+.
+you can come up with nicknames for me yourself! I also wouldn't mind if 
+you called me by my real name (but preferably not in large groups).
+.
 prns : i prefer feminine pronouns (she/her), but i respond to any.
+
 - I am ENFP 7w6 sx. soo, my main kinns !!! :
 
-🎶 Emu Otori (project sekai), Goob (dandy's world), Pinkie Pie (MLP), March 7 (HSR), Star (Star vs forces of evil), Mabel Pines (gravity falls), Dory (Finding Dory), Darwin (tAWoG), Shi Qingxuan (tian guan ci fu) and e.t.c... ☆
+💫 . Emu Otori (project sekai), Goob (dandy's world), Pinkie Pie (MLP), 
+March 7 (HSR), Star (Star vs forces of evil), Mabel Pines (gravity falls), 
+Dory (Finding Dory), Darwin (tAWoG), Shi Qingxuan (tian guan ci fu) and e.t.c... ☆
 
-![image](https://github.com/user-attachments/assets/1333d8a7-4148-4e87-ac55-857903791659)
 
-"Oh, where can I find you and in which games, huh??" 
+![image](https://github.com/user-attachments/assets/dc107c69-a1ed-4bec-bc04-f17c209f90f8)
 
-at first, you can find me in Pony Town in different places! 
-1. on the Safe server at DSMP zone. 
-2. on the Safe Russian #1 at Dandy World zone, Murder Drones and DSMP.
-3. on the 18+ Russian at spawn .
+
+DNI : эйджизм, педофилы, зоофобы и тому подобные .
+-
+Тонкий лёд:  давите на неприятные темы, осуждаете за пейринги .
+
+
+![image](https://github.com/user-attachments/assets/126c0c2f-c2e6-4631-b864-aa6119e63ab2)
+
 
  ࣪   . ·           .     ࣪    .     ࣪     ࣪  .       ࣪    . 
-
-secondly, you can find me in minecraft (im using TLauncher on PC!)
-1. on anarchy/minigame servers.
-2. on the project, the Unburning and Collapse SMP ( https://t.me/UCsmp )
-
- ࣪   . ·           .     ࣪    .     ࣪     ࣪  .       ࣪    . 
-
- and in the last, you can invite me to different RPG simulator games! I'll take the Stardew Valley as an example.
-
- ![image](https://github.com/user-attachments/assets/91d79fcf-d79e-4426-9595-2968050424fd)
+ you can invite me to different RPG simulator games! I'll take the Stardew Valley as an example.
+ orr, minecraft ?? all what you want !!
+-
 
 ALL MY FD : dsmp, MyNeosha, линч, лололошка, мсют, detroit: become human, геншин, хср, привет шарлотта, коты воители, kaiju paradise, stardew valley, сердца пандоры, project sekai, фнаф, куки ран, deltarune, undertale yellow, undertale, гравити фолз, regrevator, палитра смерти, DDLK(a little), бездомный бог, последний серафим, салли фейс, омори, френ боу, растения против зомби, ротомойка, alfred's playhouse(это можно считать за фд?), зайчик, dandy's world, млп, игра в кальмара (2 сезон), дроны убийцы, серия игр Лейси
 
