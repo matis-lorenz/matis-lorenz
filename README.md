@@ -25,7 +25,7 @@ Dory (Finding Dory), Darwin (tAWoG), Shi Qingxuan (tian guan ci fu) and e.t.c...
 ![image](https://github.com/user-attachments/assets/dc107c69-a1ed-4bec-bc04-f17c209f90f8)
 
 
-DNI : эйджизм, педофилы, зоофобы и тому подобные .
+DNI : эйджизм, педофилы, зоофилы, и тому подобные .
 -
 Тонкий лёд:  давите на неприятные темы, осуждаете за пейринги .
 
